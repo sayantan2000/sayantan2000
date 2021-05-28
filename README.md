@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @sayantan2000
-- 👀 I’m interested in CODING ,DEVLOPING,RELAXING
+- 👀 I’m interested in CODING ,DEVLOPING,LEARNING
 - 🌱 I’m currently learning  JAVA ,PYTHON,ANGULAR ,NODE JS
 - 💞️ I’m looking to collaborate on anywhere on the internet
 - 📫 How to reach me 
