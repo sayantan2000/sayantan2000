@@ -44,7 +44,7 @@ I’m interested in **serious projects** that require high-level technical owner
 ---
 
 ## 📬 Connect with Me
-[**LinkedIn**](https://www.linkedin.com/in/sayantan-sadhukhan) | [**Portfolio**](https://sayantansadhukhan.com) 
+[**LinkedIn**](https://www.linkedin.com/in/sayantan-sadhukhan) | [**Portfolio**]([https://sayantansadhukhan.com](https://sayantan2000.github.io/Sayantan-Sadhukhan/)) 
 
 ---
 
